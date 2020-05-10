@@ -1,4 +1,4 @@
-# Prueba de Interaccion de Colaboradores
+# Prueba de Interacción de Colaboradores
 
 ![](https://marine.rutgers.edu/~cfree/wp-content/uploads/contents_of_github_repository-768x378.png)
 
