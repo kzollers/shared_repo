@@ -2,6 +2,8 @@
 
 ![](https://marine.rutgers.edu/~cfree/wp-content/uploads/contents_of_github_repository-768x378.png)
 
+## Comentarios: 
+
 NO LE TOMEN EN CUENTA A DIOGENES...... ALVARO ESTUVO AQUI
 
 AQUI ESTUVE YO "DIOGENES VELASCO ROMERO "
